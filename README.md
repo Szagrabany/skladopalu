@@ -1,0 +1,1 @@
+# skladopalu.github.io
